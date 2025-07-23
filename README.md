@@ -11,7 +11,7 @@ Follow for mind-blowing AI mashups and feel-good vibes!
 - 📷 [Instagram](https://instagram.com/ai_bliss_waves)
 - 🎵 [TikTok](https://tiktok.com/@ai_bliss_waves)
 - ▶️ [YouTube](https://youtube.com/@ai_bliss_waves)
-- 📘 [Facebook](https://facebook.com/ai_bliss_waves)
+- 📘 [Facebook](https://facebook.com/ai.bliss.waves)
 - 🧵 [Threads](https://www.threads.net/@ai_bliss_waves)
 - 🐦 [X (Twitter)](https://twitter.com/ai_bliss_waves)
 - 👤 [Reddit User](https://www.reddit.com/user/ai_bliss_waves)
